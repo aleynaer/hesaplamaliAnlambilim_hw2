@@ -1,0 +1,1 @@
+# hesaplamaliAnlambilim_hw2
